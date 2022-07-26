@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Relaxing in my house
+- Watching a good tv series
+- Crocheting gifts for loved ones
+- Learning 
+- Good food
