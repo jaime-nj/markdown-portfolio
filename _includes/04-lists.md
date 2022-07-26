@@ -1,0 +1,5 @@
+- Relaxing in my house
+- Watching a good tv series
+- Crocheting gifts for loved ones
+- Learning 
+- Good food
